@@ -1,2 +1,2 @@
 # sharing code 
-welcom to my son that join me 
+welcom to my son who join me 
